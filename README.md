@@ -15,3 +15,5 @@ Full Skelethon Stream, Youtube: https://www.youtube.com/watch?v=CYNBOAoXReQ
 Kirby (off TIK) Music Video, Youtube: https://www.youtube.com/watch?v=7T_KKiQiolk
 
 None Shall Pass Music Video, Youtube: https://www.youtube.com/watch?v=ZEBGCOCxLgA
+
+Klutz Music Video, Youtube: https://www.youtube.com/watch?v=QtZT7hcMltg
