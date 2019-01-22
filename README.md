@@ -20,6 +20,14 @@ http://mushrecords.com/articles/AesopRockGhettoSounds.html
 
 http://mushrecords.com/articles/AesopRockJockeyFables.html
 
+http://mushrecords.com/articles/AesopRockRockpileMajor.html
+
+http://mushrecords.com/articles/AesopRockSpinIncoming.html
+
+http://mushrecords.com/articles/AesopRockStealthAthereal.html
+
+http://mushrecords.com/articles/AesopRockUrbForward.html
+
 Music Videos:
 
 Aesop Rock Subreddit: https://www.reddit.com/r/aesoprock
