@@ -6,8 +6,12 @@ Aesop Rock Subreddit: https://www.reddit.com/r/aesoprock
 
 Full Malibu Ken Stream, Youtube: https://www.youtube.com/watch?v=e-BXexG2E8c
 
+Malibu Ken - Corn Maze Music Video, Youtube: https://www.youtube.com/watch?v=gqY2CNMsFKw
+
 Full Impossible Kid Stream, Youtube: https://www.youtube.com/watch?v=PQF6x_FgnJ0
 
 Full Skelethon Stream, Youtube: https://www.youtube.com/watch?v=CYNBOAoXReQ
 
 Kirby (off TIK) Music Video, Youtube: https://www.youtube.com/watch?v=7T_KKiQiolk
+
+None Shall Pass Music Video, Youtube: https://www.youtube.com/watch?v=ZEBGCOCxLgA
